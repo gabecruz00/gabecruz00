@@ -1,6 +1,6 @@
 ## bem vindo  💞
 Gabriel Cruz
-1ºA
+2B
 "Nivel médio de programação"
 gabriel.cruz08@escola.pr.gov.br
 Sem união é impossivel a revolução🪁
